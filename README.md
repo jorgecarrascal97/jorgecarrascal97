@@ -2,7 +2,7 @@
 
 ## LEARNIG ABOUT SOFTWARE DEVELOPMENT
 
-# currently stdudy in Riwi bq 
+# currently study in Riwi bq 
 
 
 ## LENGUAGE
